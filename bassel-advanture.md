@@ -1,0 +1,1 @@
+One morning I woke up and I was alone, away from the light. It was dark and lonely. I’m very hungry but then I spot some food. My mother thinks I am very clever. 
